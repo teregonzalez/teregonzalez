@@ -14,3 +14,10 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+
+Learning how to create cool Java solutions:sparkles:
+
+📫 How to reach me:
+
+- [Linkedin](https://www.linkedin.com/in/tere-gonz%C3%A1lez-miranda-456944112/)
+
