@@ -15,9 +15,9 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 
-Learning how to create cool Java solutions:sparkles:
+Learning how to develope cool Java solutions:sparkles:
 
-📫 How to reach me:
+You can contact me in:
 
 - [Linkedin](https://www.linkedin.com/in/tere-gonz%C3%A1lez-miranda-456944112/)
 
