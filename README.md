@@ -18,6 +18,7 @@ Here are some ideas to get you started:
 Learning how to develope cool Java solutions :sparkles:
 
 Looking to collaborate and learn about projects that encourage recycling and other amazing green options for a better world.
+지금 한국어를 공부하고 있어요.
 
 You can contact me in:
 
