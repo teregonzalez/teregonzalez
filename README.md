@@ -23,4 +23,5 @@ Looking to collaborate and learn about projects that encourage recycling and oth
 You can contact me in:
 
 - [Linkedin](https://www.linkedin.com/in/tere-gonz%C3%A1lez-miranda-456944112/)
+- teregonzalezpro@gmail.com
 
