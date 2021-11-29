@@ -15,7 +15,7 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 
-Learning how to develope cool Java solutions :sparkles:
+Learning how to develope cool solutions :sparkles:
 
 Looking to collaborate and learn about projects that encourage recycling and other amazing green options for a better world.
 지금 한국어를 공부하고 있어요.
