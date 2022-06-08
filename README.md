@@ -17,10 +17,10 @@ Here are some ideas to get you started:
 
 ## Learning how to develope cool solutions :sparkles:
 
-##### Looking to collaborate and learn about projects that can help to create a better world.
+##### Looking to collaborate and learn about projects that can help to develope a better world.
 
 
-한국어를 열심히 공부하고도 있어요 :point_up:
+한국어를 열심히 공부하고도 있어 :point_up:
 
 
 ###### Working in:
